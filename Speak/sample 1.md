@@ -1,0 +1,15 @@
+## Describe a good study habit you have that is different from other students
+
+Making some computer graphs is my unique study habit for two reasons. First, it is a good way to improve my study. As a student, study is the most important thing. Making some computer graphs can help me understand the materials of subjects and improve the programming skill. Second, making some computer graphs is beneficial for me to prepare the presentation in the future. For example, I was asked to give a presentation in my physics class. The graphs that I created before helped me to give a successful presentation in front of students. These are my whole reasons.
+
+## One of your friends will give a public presentation. Which suggestion do you have to make it successful? Use details and examples to illustrate your answer
+
+I will give my friend two suggestions to make the presentation successful. First, he should make a lot of practices before the presentation. As an old saying says, practices makes prefect. He should familiarize the materials that he wants to present and learn some basic skills about the speech. For example, when I was asked to give a speech about the cosmic physics, I was nervous at the very beginning. But after several days of practice, I became confident and the speech was finally successful. Second, he should take some speech training courses. In these courses, the professional teacher will correct your mistakes in you presentation and give you some advices to improve your performance. Those are my whole reasons.
+
+## Among the following ways of transportation, which do you think is the most enjoyable? Bicycle, automobile or train. Explain your answer in details.
+
+In the mentioned ways of transportation, I think bicycle is the most enjoyable way for two reasons. First, riding bicycle is a good way for me to release my stress. As a student, I often feel exhausted after a whole day of study. Riding bicycle can refresh me and give me energy for next day. Second, I can make a lot of new friends by riding bicycle. We usually make some hikes to the town by riding bicycles. For example, my friends invited me to enter their trip to the nearby town to buy some new CDs last month. We rode our bicycles and had a happy time in the whole trip. These are my whole reasons.
+
+## Describe an interesting clothing style in your country and explain why it is interesting.
+
+In my country, I think an interesting clothing style is our school uniform. First, it doesn’t care about your gender. Whatever your gender is, your school uniform is consistent with same color and same pattern. Wearing the school uniform, I can not find any difference with others except the size. Second, our school uniform can keep its design for many years. Some out of date styles of uniform make us think we’re still in the last century. For example, my friends often say that they usually feel shy when they wear the school uniform with such an out of date style. We usually propose the school leader to make some changes but this never really happens. These are my whole reasons.
